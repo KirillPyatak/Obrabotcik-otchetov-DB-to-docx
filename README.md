@@ -1,0 +1,2 @@
+# Obrabotcik-texta-img
+ 
